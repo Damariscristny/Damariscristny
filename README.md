@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Damariscristny
-- 👀 I’m interested in learn English and Spanish
+- 👀 I’m interested in learn English and Spanish But I really like tinkering with technology.
 - 🌱 I’m currently learning English
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
